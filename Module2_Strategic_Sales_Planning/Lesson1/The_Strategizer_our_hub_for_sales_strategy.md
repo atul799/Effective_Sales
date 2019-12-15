@@ -30,7 +30,7 @@ We use something that is called heat map. Heat map is really a plan when you des
 
 **The geography**, the line of business or the product, if you like, or the **service you're selling**,  **the segment** of the company if it is a small, an SME, a small, medium company. If you're selling to global corporation, 
 
-if you're selling to the local shop around the corner, it doesn't matter. But you have to understand to whom you're selling and the **industry you're targeting**. Because different clients from different industries, that's very important, have different challenges, all right? So it's very very important that you actually when you have a heat map. 
+if you're selling to the local shop around the corner, it doesn't matter. But you have to understand **to whom you're selling** ** and the** **industry you're targeting**. Because different clients from different industries, that's very important, have different challenges, all right? So it's very very important that you actually when you have a heat map. 
 
 So once you watch your selling, you need to define to whom you're going to sell, and the how it's like the tree the top element. That's going to be absolutely based on what and to whom, because you have nowadays, a variety of distribution channels. 
 
@@ -42,11 +42,11 @@ So that's very very important for us. The what, to whom, and the how, the when. 
 
 achieving the goals defined in the corporate strategy. 
 
-Well, any plan must have those elements I was talking about. And you can probably add more things like deadlines, and the teams, the pricing. You remember the ps of marking, that goes right into this, right? 
+Well, any plan must have those elements I was talking about. And you can probably add more things like deadlines, and the teams, the pricing. You remember the Ps of marking, that goes right into this, right? 
 
 Your product, plans, the point of sale, the pricing, and all that. That all comes in any sales planning. 
 
-But, again, I emphasize that it's very, very important that you understand, okay, the work that comes with purpose. I believe this product or this service will be important to the person I'm selling to. So once you have that, when you establish your plan about, okay, who's my consumer, to whom I'm selling, what I'm selling, to whom I'm selling, and what are the channels I'm using. And what are the tactics or the tactical planning comes right after the strategy, the strategic planning. 
+But, again, I emphasize that it's very, very important that you understand, okay, the work that comes with purpose. I believe this product or this service will be important to the person I'm selling to. So once you have that, when you establish your plan about, okay, **who's my consumer, to whom I'm selling, what I'm selling, to whom I'm selling, and what are the channels I'm using**. And what are the tactics or the tactical planning comes right after the strategy, the strategic planning. 
 
 \>> And still talking about sales planning, which is very important for us in this discussion, what should sales manager observe when defining tactical sales activities, during this planning, during this process? 
 
@@ -56,7 +56,7 @@ First, you're managing the structure of the company that actually provides while
 
 Regardless, again, if it's an engineering company, someone is producing what your team is out there to sell. 
 
-So this is our first element. Then the other element that is very important is the pricing, the value proposition. This is a word nowadays that is very common. You see and you read that all the time value proposition, because people buy what they think have value to them, right? We buy what is valuable to us. 
+So this is our first element. Then the other element that is very important is **the pricing, the value proposition**. This is a word nowadays that is very common. You see and you read that all the time value proposition, because people buy what they think have value to them, right? We buy what is valuable to us. 
 
 And let's considered that especially in complex sales, every sales that change. So I'm changing my life depending on what I'm buying. Or I'm adding something to my life or I'm adding something to my family life, or to my company life. So it has to have a value proposition. And that comes together, of course, with the pricing because your company, unless you work for a foundation or for a philanthropic.  Non profit. 
 
@@ -76,4 +76,4 @@ All right, well, coming from someone that loves to sell. And as I said before, t
 
 So listen, listen every day. And the third, probably the most important, motivation comes from within. 
 
-You can find any source of incentive or motivation that you like. You can have coaching from people you admire. You can have your family. You can have spiritual mental interactive physical activities that will give you motivation, but find your purpose, find your why, find the motivation. What makes you get up every day, go to work, and sell with all your heart, all your mind, and all your soul. Because this energy comes across and it's going to be better for you, better for a client.
+You can find any source of incentive or motivation that you like. You can have coaching from people you admire. You can have your family. You can have spiritual mental intellectual physical activities that will give you motivation, but find your purpose, find your why, find the motivation. What makes you get up every day, go to work, and sell with all your heart, all your mind, and all your soul. Because this energy comes across and it's going to be better for you, better for a client.
