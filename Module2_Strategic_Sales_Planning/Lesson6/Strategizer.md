@@ -1,4 +1,4 @@
-mechanical engineer and a VP of people management, father of three kids, and a redcoats sport lover,
+Mechanical engineer and a VP of people & management, father of three kids, and a redcoats sport lover,
 practicing paragliding and waking board. 
 Fabio Kapitanovas
 
